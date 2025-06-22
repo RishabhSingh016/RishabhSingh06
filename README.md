@@ -20,7 +20,7 @@
 ---
 
 ### 📫 Let's Connect!
-- [LinkedIn]((https://www.linkedin.com/in/rishabh-singh-64430b301/)) 
+- [LinkedIn]((https://www.linkedin.com/in/rishabh-singh-64430b301)) 
 
 
 ---
